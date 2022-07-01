@@ -1,2 +1,2 @@
 # devops-netology
-good 
+good day to fight 
